@@ -1,1 +1,1 @@
-Own today to shape tomorrow! ✨
+Own today, shape tomorrow! ✨
